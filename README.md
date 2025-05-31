@@ -1,0 +1,2 @@
+# Guvenli-Ajandam-
+Güvenli Ajandam 
